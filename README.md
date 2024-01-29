@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sachGit1
+- 👋 Hi, I’m Sachini
 - 👀 I’m interested in something
 - 🌱 I’m currently learning something
 - 💞️ I’m looking to collaborate on anything
